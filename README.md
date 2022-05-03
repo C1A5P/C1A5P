@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @C1A5P
+- 👀 I’m interested in Learning cybersecurity
+- 🌱 I’m currently learning Cybersecurity
+- 💞️ I’m looking to collaborate on Projects that need it
+- 📫 How to reach me caelathanasiuspidal@maristasleon.net
